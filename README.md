@@ -1,1 +1,1 @@
-<img width="962" alt="image" src="https://github.com/user-attachments/assets/535ef428-62fd-4e13-baff-c778e6929597"><img width="774" alt="스크린샷 2024-07-24 17 17 51" src="https://github.com/user-attachments/assets/a03a0d17-9603-402f-b740-3f8f851a63fc">
+<img width="962" alt="image" src="https://github.com/user-attachments/assets/535ef428-62fd-4e13-baff-c778e6929597">
